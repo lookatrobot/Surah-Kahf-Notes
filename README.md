@@ -41,4 +41,19 @@ A person knows that whatever happens, happens by Allah’s command. So whenever 
 These three questions were not asked all at once; rather, they were asked in different hadiths. I have found their answers directly from the Quran. The answer to the question about `Ashab-e-Kahf` is in `Surah Kahf`, and the answer about `Zulqarnain` is also in the `same Surah`. The answer to the first question about the soul is in the `17th Juz’ (para), Surah Al-Isra, verse 85`. 
 ## The Answer Of 1st-Question:
 `“They ask you, [O Prophet], about the soul. Say, ‘The soul is of the affair of my Lord. And mankind have not been given of knowledge except a little.’” (17:85)`
+## Analysis:
+Even in this modern era, scientists have still not been able to completely discover what the soul is. Allah Almighty has given only a little knowledge about the soul, and it will never be fully discovered by humans because of Allah’s will. Whatever matters Allah has kept in the unseen (ghaib) contain wisdom and goodness, because I believe those matters are beyond the capacity of the human brain to fully comprehend.
+
+## The Answer Of 3rd-Question:
+The answer to the third question is in `Surah Kahf, verses 83–98`, but here I am sharing verse 83 because you can read it directly from the Quran:
+
+`“They ask you, [O Prophet], about Dhul-Qarnain. Say, ‘I will recite to you about him a report.’” (Surah Kahf 18:83)`
+## Analysis:
+If you read from `verse 83` onward, it becomes clear that Dhul-Qarnain encountered `the people of Gog and Magog`, and it was he who built the barrier. Their mention is found in `verses 94–98 of Surah Kahf`, and they are also mentioned in another place in the Quran, in `Surah Al-Anbiya (21:96)`:
+
+`“Until, when Gog and Magog are let loose, and they rush down from every elevation.” (Surah Al-Anbiya 21:96)`
+
+`They said, “O Dhul-Qarnain! Indeed, Gog and Magog are spreading corruption in the land. Should we pay you tribute, provided that you build a barrier between us and them?” (Surah Kahf 18:94)`
+
+## Noticed Smth:
 
