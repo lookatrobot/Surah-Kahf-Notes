@@ -3,7 +3,7 @@
 
 Personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
 # Story:
-I studied `29 verses` in two days along with the translation in my native language. Among these, the verses that carry very important lessons start from `verse 4-6`.
+I studied `29 verses` in two days along with the translation in my native language. Among these, the verses that carry very important lessons start from.
 # Verses 4-6: 
 These verses state:
 
