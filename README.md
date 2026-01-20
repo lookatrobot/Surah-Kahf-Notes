@@ -1,9 +1,8 @@
 # ☾⭑ Surah-Kahf-Notes:
-## `﷽`
-
 Personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
-# Story:
-I studied `29 verses` in two days along with the translation in my native language. Among these, the verses that carry very important lessons start from.
+
+# Me:
+I studied `29 verses` over two days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
 # Verses 4-6: 
 These verses state:
 
@@ -55,5 +54,19 @@ If you read from `verse 83` onward, it becomes clear that Dhul-Qarnain encounter
 
 `They said, “O Dhul-Qarnain! Indeed, Gog and Magog are spreading corruption in the land. Should we pay you tribute, provided that you build a barrier between us and them?” (Surah Kahf 18:94)`
 
-## Noticed Smth:
+## Gog And Magog:
+There is a hadith in Sunan Ibn Majah (Hadith 4080) which states:
 
+`“Gog and Magog dig every day until, when they are about to see the rays of the sun, the one in charge of them says: ‘Go back, and we will dig it tomorrow.’ Then Allah restores it, making it stronger than it was before. This continues until the time comes when Allah wants to send them against the people. They will dig until they are about to see the rays of the sun, and the one in charge of them will say: ‘Go back, and we will dig it tomorrow, if Allah wills.’ So they will say, ‘If Allah wills.’ When they return, they will find it exactly as they left it. They will then dig through and come out to the people. They will drink all the water, and the people will take refuge in their fortresses. Gog and Magog will shoot their arrows into the sky, and the arrows will return to them stained with blood. They will say, ‘We have defeated the people of the earth and overcome the people of the heavens.’ Then Allah will send a worm into the backs of their necks, and He will destroy them through it.”`
+
+https://sunnah.com/ibnmajah:4080
+
+## Analysis:
+The hadith shows that `Gog and Magog` almost completed the wall many times, but because they did not say `“InshaAllah,”` the wall was `rebuilt each time`. When they finally said “InshaAllah,” the wall remained as it was and they succeeded the next day. This highlights the power of saying “InshaAllah” with true belief. Likewise, we should say “InshaAllah” in every matter, trusting that if something is meant to happen, it will happen by `Allah’s command.`
+
+## Note: 
+Whenever you read the Quran, read it along with its translation only then will you understand its true meaning. `Beautiful recitation` may make it feel like we are reading the Quran, but without understanding, it is meaningless. Memorizing the Quran has no real benefit if we do not understand what it is saying.
+
+Watch this video; it’s an Instagram reel: https://www.instagram.com/p/DJBL4UENQFp/
+
+After watching this reel, I stopped reading the Quran `without translation.`
