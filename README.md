@@ -21,3 +21,24 @@ The verse state:
 `We have indeed made whatever is on earth as an adornment for it, in order to test which of them is best in deeds. 18:7`
 ## Analysis: 
 In this world, Allah Almighty is testing us. Every human experiences all kinds of emotions. When we work hard but don’t get the results, or when someone close to us hurts us, it is a test to see how a person behaves under trial. Whenever bad times come, keep faith in Allah Almighty that He will surely give me a good reward in return, because Allah knows everything. If I don’t get it in this world, then surely I will receive it in the Hereafter, Insha’Allah, Ameen. Now, don’t say that something bad happened to me while look at how good someone else’s life is, because Allah is testing them by giving, and testing us by taking away.
+
+## Main-Point:
+The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
+## The Three Questions Asked to Prophet Muhammad (PBUH) by the Jews:
+I was reading verse number 24, which says:
+
+`And never say of anything, 'Indeed, I will do that tomorrow,' except [when adding], 'If Allah wills.' But if you forget, then remember your Lord and say, 'I trust my Lord will guide me to what is more right than this. 18:24`
+
+While reading this verse, I also read its tafseer (exegesis), which mentioned that the Jewish scholars asked Prophet Muhammad (peace be upon him) three questions:
+1. What is the reality of the soul?
+2. Who were Ashab-e-Kahf?
+3. Who was Zulqarnain?
+
+The Prophet (PBUH) `replied` that he would answer them the next day. However, Angel Jibrael (Gabriel) did not bring the answers for 15 days. Then, when the answers came, Allah commanded the Prophet to say “Inshallah” (if Allah so wills) before answering.
+
+A person knows that whatever happens, happens by Allah’s command. So whenever we intend to do something in the future, it is necessary to say “Inshallah” because the person has the intention, but whether it happens or not is by Allah’s will. Therefore, it is better to say “Inshallah.”
+
+These three questions were not asked all at once; rather, they were asked in different hadiths. I have found their answers directly from the Quran. The answer to the question about `Ashab-e-Kahf` is in `Surah Kahf`, and the answer about `Zulqarnain` is also in the `same Surah`. The answer to the first question about the soul is in the `17th Juz’ (para), Surah Al-Isra, verse 85`. 
+## The Answer Of 1st-Question:
+`“They ask you, [O Prophet], about the soul. Say, ‘The soul is of the affair of my Lord. And mankind have not been given of knowledge except a little.’” (17:85)`
+
