@@ -38,7 +38,7 @@ And this verse is very deep and meaningful:
 
 Whenever we receive something that we wished for, or something even more than our expectations, we should say: 
 
-`## ` 
+## مَا شَآءَ ٱللَّهُ لَا قُوَّةَ إِلَّا بِٱللَّهِۚ
 
 ## Main-Point:
 The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
