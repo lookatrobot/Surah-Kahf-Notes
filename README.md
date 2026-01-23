@@ -22,9 +22,23 @@ The verse state:
 In this world, Allah Almighty is testing us. Every human experiences all kinds of emotions. When we work hard but don’t get the results, or when someone close to us hurts us, it is a test to see how a person behaves under trial. Whenever bad times come, keep faith in Allah Almighty that He will surely give me a good reward in return, because Allah knows everything. If I don’t get it in this world, then surely I will receive it in the Hereafter, Insha’Allah, Ameen. Now, don’t say that something bad happened to me while look at how good someone else’s life is, because Allah is testing them by giving, and testing us by taking away.
 
 ## Verses 32-42:
-Verses 32–42 give an example of `two men`. Allah gives this example to Prophet Muhammad (PBUH). 
+Verses 32–42 give an example of `two men`. Allah gives this example to Prophet Muhammad (PBUH). One man was a believer, and the other was a disbeliever. Each of them had a garden. 
 
 `Give them ˹O Prophet˺ an example of two men. To ˹the disbelieving˺ one We gave two gardens of grapevines, which We surrounded with palm trees and placed ˹various˺ crops in between. 18:42`
+
+The disbeliever said to the believer:
+
+`And he had other resources1 ˹as well˺. So he boasted to a ˹poor˺ companion of his, while conversing with him, “I am greater than you in wealth and superior in manpower.”` `18:34`
+
+And this verse is very deep and meaningful:
+
+`If only you had said, upon entering your property, ‘This is what Allah has willed! There is no power except with Allah!’ Even though you see me inferior to you in wealth and offspring,` `18:39`
+
+## Analysis:
+
+Whenever we receive something that we wished for, or something even more than our expectations, we should say: 
+
+`## ` 
 
 ## Main-Point:
 The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
