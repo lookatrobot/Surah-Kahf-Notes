@@ -2,7 +2,7 @@
 Personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
 
 # Me:
-I studied `29 verses` over two days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
+I studied `53 verses` over two days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
 # Verses 4-6: 
 These verses state:
 
@@ -20,6 +20,11 @@ The verse state:
 `We have indeed made whatever is on earth as an adornment for it, in order to test which of them is best in deeds. 18:7`
 ## Analysis: 
 In this world, Allah Almighty is testing us. Every human experiences all kinds of emotions. When we work hard but don’t get the results, or when someone close to us hurts us, it is a test to see how a person behaves under trial. Whenever bad times come, keep faith in Allah Almighty that He will surely give me a good reward in return, because Allah knows everything. If I don’t get it in this world, then surely I will receive it in the Hereafter, Insha’Allah, Ameen. Now, don’t say that something bad happened to me while look at how good someone else’s life is, because Allah is testing them by giving, and testing us by taking away.
+
+## Verses 32-42:
+Verses 32–42 give an example of `two men`. Allah gives this example to Prophet Muhammad (PBUH). 
+
+`Give them ˹O Prophet˺ an example of two men. To ˹the disbelieving˺ one We gave two gardens of grapevines, which We surrounded with palm trees and placed ˹various˺ crops in between. 18:42`
 
 ## Main-Point:
 The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
