@@ -1,8 +1,8 @@
 # ☾⭑ Surah-Kahf-Notes:
 Personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
 
-# Me:
-I studied `53 verses` over two days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
+**Me:**
+I studied `53 verses` over three days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
 # Verses 4-6: 
 These verses state:
 
@@ -38,7 +38,7 @@ And this verse is very deep and meaningful:
 
 Whenever we receive something that we wished for, or something even more than our expectations, we should say: 
 
-## مَا شَآءَ ٱللَّهُ لَا قُوَّةَ إِلَّا بِٱللَّهِۚ
+**مَا شَآءَ ٱللَّهُ لَا قُوَّةَ إِلَّا بِٱللَّهِۚ**
 
 ## Main-Point:
 The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
