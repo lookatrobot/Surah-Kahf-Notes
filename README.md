@@ -40,6 +40,8 @@ Whenever we receive something that we wished for, or something even more than ou
 
 **مَا شَآءَ ٱللَّهُ لَا قُوَّةَ إِلَّا بِٱللَّهِۚ**
 
+It means that only Allah has true power. Whatever we get is from Allah and because of our effort. That is why we should say this with a sincere intention, as actions depend on intentions.
+
 ## Main-Point:
 The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cave). This story is available everywhere on the internet, but I have read it directly from the Quran to avoid any misleading information. We will discuss it later, but right now we are going to study a very important topic, which I discovered from this Surah.
 ## The Three Questions Asked to Prophet Muhammad (PBUH) by the Jews:
