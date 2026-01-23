@@ -73,7 +73,7 @@ If you read from `verse 83` onward, it becomes clear that Dhul-Qarnain encounter
 
 `“Until, when Gog and Magog are let loose, and they rush down from every elevation.”` `(Surah Al-Anbiya 21:96)`
 
-`They said, “O Dhul-Qarnain! Indeed, Gog and Magog are spreading corruption in the land. Should we pay you tribute, provided that you build a barrier between us and them?” (Surah Kahf 18:94)`
+`They said, “O Dhul-Qarnain! Indeed, Gog and Magog are spreading corruption in the land. Should we pay you tribute, provided that you build a barrier between us and them?” ``(Surah Kahf 18:94)`
 
 ## Gog And Magog:
 There is a hadith in Sunan Ibn Majah (Hadith 4080) which states:
