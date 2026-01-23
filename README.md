@@ -6,25 +6,25 @@ I studied `53 verses` over three days along with their translation in my native 
 ## Verses 4-6: 
 These verses state:
 
-`And to warn those who claim, ‘Allah has offspring. (18:4)`
+`And to warn those who claim, ‘Allah has offspring.` `(18:4)`
 
-`They have no knowledge of this, nor did their forefathers. What a terrible claim that comes out of their mouths! They say nothing but lies. (18:5)`
+`They have no knowledge of this, nor did their forefathers. What a terrible claim that comes out of their mouths! They say nothing but lies.` `(18:5)`
 
-`Now, perhaps you ˹O Prophet˺ will grieve yourself to death over their denial, if they ˹continue to˺ disbelieve in this message. (18:6)`
+`Now, perhaps you ˹O Prophet˺ will grieve yourself to death over their denial, if they ˹continue to˺ disbelieve in this message.` `(18:6)`
 ## Analysis: 
 These verses explain that Allah Almighty has no offspring, and that such claims are merely the result of people blindly following the paths of their forefathers. They do not think for themselves or use their own intellect. If we look at this from another perspective, we too often follow certain practices of our parents that have no real basis sometimes they are just cultural traditions or habits. The lesson we gain from these verses is that whenever we hear something or are about to do something, we should pause and reflect once to see whether it is right or not. In this, one must only avoid shirk (associating partners with God), because every sin will be forgiven after the Day of Judgment, but shirk will never be forgiven. It means that a person may have all their sins forgiven and punished, but due to shirk alone, they will remain forever in Hell.
 
 ## Verses 7:
 The verse state:
 
-`We have indeed made whatever is on earth as an adornment for it, in order to test which of them is best in deeds. 18:7`
+`We have indeed made whatever is on earth as an adornment for it, in order to test which of them is best in deeds.` `18:7`
 ## Analysis: 
 In this world, Allah Almighty is testing us. Every human experiences all kinds of emotions. When we work hard but don’t get the results, or when someone close to us hurts us, it is a test to see how a person behaves under trial. Whenever bad times come, keep faith in Allah Almighty that He will surely give me a good reward in return, because Allah knows everything. If I don’t get it in this world, then surely I will receive it in the Hereafter, Insha’Allah, Ameen. Now, don’t say that something bad happened to me while look at how good someone else’s life is, because Allah is testing them by giving, and testing us by taking away.
 
 ## Verses 32-42:
 Verses 32–42 give an example of `two men`. Allah gives this example to Prophet Muhammad (PBUH). One man was a believer, and the other was a disbeliever. Each of them had a garden. 
 
-`Give them ˹O Prophet˺ an example of two men. To ˹the disbelieving˺ one We gave two gardens of grapevines, which We surrounded with palm trees and placed ˹various˺ crops in between. 18:42`
+`Give them ˹O Prophet˺ an example of two men. To ˹the disbelieving˺ one We gave two gardens of grapevines, which We surrounded with palm trees and placed ˹various˺ crops in between.`  `18:42`
 
 The disbeliever said to the believer:
 
@@ -47,7 +47,7 @@ The main point of Surah Kahf is the story of Ashab-e-Kahf (the People of the Cav
 ## The Three Questions Asked to Prophet Muhammad (PBUH) by the Jews:
 I was reading verse number 24, which says:
 
-`And never say of anything, 'Indeed, I will do that tomorrow,' except [when adding], 'If Allah wills.' But if you forget, then remember your Lord and say, 'I trust my Lord will guide me to what is more right than this. 18:24`
+`And never say of anything, 'Indeed, I will do that tomorrow,' except [when adding], 'If Allah wills.' But if you forget, then remember your Lord and say, 'I trust my Lord will guide me to what is more right than this.` `18:24`
 
 While reading this verse, I also read its tafseer (exegesis), which mentioned that the Jewish scholars asked Prophet Muhammad (peace be upon him) three questions:
 1. What is the reality of the soul?
@@ -60,18 +60,18 @@ A person knows that whatever happens, happens by Allah’s command. So whenever 
 
 These three questions were not asked all at once; rather, they were asked in different hadiths. I have found their answers directly from the Quran. The answer to the question about `Ashab-e-Kahf` is in `Surah Kahf`, and the answer about `Zulqarnain` is also in the `same Surah`. The answer to the first question about the soul is in the `17th Juz’ (para), Surah Al-Isra, verse 85`. 
 ## The Answer Of 1st-Question:
-`“They ask you, [O Prophet], about the soul. Say, ‘The soul is of the affair of my Lord. And mankind have not been given of knowledge except a little.’” (17:85)`
+`“They ask you, [O Prophet], about the soul. Say, ‘The soul is of the affair of my Lord. And mankind have not been given of knowledge except a little.’”` `(17:85)`
 ## Analysis:
 Even in this modern era, scientists have still not been able to completely discover what the soul is. Allah Almighty has given only a little knowledge about the soul, and it will never be fully discovered by humans because of Allah’s will. Whatever matters Allah has kept in the unseen (ghaib) contain wisdom and goodness, because I believe those matters are beyond the capacity of the human brain to fully comprehend.
 
 ## The Answer Of 3rd-Question:
 The answer to the third question is in `Surah Kahf, verses 83–98`, but here I am sharing verse 83 because you can read it directly from the Quran:
 
-`“They ask you, [O Prophet], about Dhul-Qarnain. Say, ‘I will recite to you about him a report.’” (Surah Kahf 18:83)`
+`“They ask you, [O Prophet], about Dhul-Qarnain. Say, ‘I will recite to you about him a report.’”` `(Surah Kahf 18:83)`
 ## Analysis:
 If you read from `verse 83` onward, it becomes clear that Dhul-Qarnain encountered `the people of Gog and Magog`, and it was he who built the barrier. Their mention is found in `verses 94–98 of Surah Kahf`, and they are also mentioned in another place in the Quran, in `Surah Al-Anbiya (21:96)`:
 
-`“Until, when Gog and Magog are let loose, and they rush down from every elevation.” (Surah Al-Anbiya 21:96)`
+`“Until, when Gog and Magog are let loose, and they rush down from every elevation.”` `(Surah Al-Anbiya 21:96)`
 
 `They said, “O Dhul-Qarnain! Indeed, Gog and Magog are spreading corruption in the land. Should we pay you tribute, provided that you build a barrier between us and them?” (Surah Kahf 18:94)`
 
