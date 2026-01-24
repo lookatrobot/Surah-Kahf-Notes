@@ -93,3 +93,6 @@ Watch this video; it’s an Instagram reel: https://www.instagram.com/p/DJBL4UEN
 By making notes, I will stay motivated and be able to explore the Surahs better, but handwritten notes are not worth it. I will keep making notes for every Surah I read so that I understand the message in each one.
 
 Feel free to `star` this repo and fork :3
+
+
+
