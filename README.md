@@ -94,5 +94,3 @@ By making notes, I will stay motivated and be able to explore the Surahs better,
 
 Feel free to `star` this repo and fork :3
 
-
-
