@@ -88,6 +88,17 @@ The hadith shows that `Gog and Magog` almost completed the wall many times, but 
 ## Note: 
 Whenever you read the Quran, read it along with its translation only then will you understand its true meaning. `Beautiful recitation` may make it feel like we are reading the Quran, but without understanding, it is meaningless. Memorizing the Quran has no real benefit if we do not understand what it is saying.
 
+
+
+
+
+
+
+
+
+
+
+
 Watch this video; it’s an Instagram reel: https://www.instagram.com/p/DJBL4UENQFp/ After watching this reel, I stopped reading the Quran `without translation.`
 
 By making notes, I will stay motivated and be able to explore the Surahs better, but handwritten notes are not worth it. I will keep making notes for every Surah I read so that I understand the message in each one.
