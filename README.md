@@ -1,5 +1,5 @@
 # ☾⭑ Surah-Kahf-Notes:
-Personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
+My personal study notes on `Surah Al-Kahf`, written using authentic Quran verses and reliable Hadith to avoid any incorrect interpretation.
 
 **Me:**
 I studied `53 verses` over three days along with their translation in my native language. Among these, the verses that carry very important lessons start from…
